@@ -1,1 +1,1 @@
-fucka yoooooou
+my eternal readme
